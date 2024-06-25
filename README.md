@@ -1,4 +1,4 @@
-# Flash USDT - Seamless Blockchain Transactions
+# Flash USDT **Free Demo Available**
 
 ![Flash USDT Image](flash_usdt_image.png)
 
