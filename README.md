@@ -13,7 +13,7 @@ Flash USDT is available for immediate use with any wallet, including Binance. If
 Minimum order: 1000 USDT for $60
 
 ## Contact Us:
-- **Telegram:** [Lindsey890 Inbox](https://t.me/Lindsey890) or [Flash USDT Demo](https://t.me/flashusdt_2)
+- **Telegram:** [joflashtool Inbox](https://t.me/joflashtool) or [Flash USDT Demo](https://t.me/flashusdt_2)
 - **WhatsApp:** +1 260 233 2460
 
 **Free Demo Available**
